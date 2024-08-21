@@ -2,6 +2,7 @@
 ## Members
 - Ney
 - Chika
-- Shika
-- Hegira
+- Shika dhiooo
+- Hegira Svenn
 - Zahidah
+
